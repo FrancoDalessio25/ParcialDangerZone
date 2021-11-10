@@ -1,3 +1,3 @@
 # ParcialDangerZone
 
-![image text](https://web.whatsapp.com/9c9b3ca4-e145-49d6-a176-8f322a59ad4c)
+![image text](blob:https://web.whatsapp.com/a618e879-5e1a-4180-9992-eebded43dd6f)
